@@ -1,1 +1,1 @@
-# not-using-sonyakun.xyz
+The sonyakun.xyz domain will be abandoned after 2024.
