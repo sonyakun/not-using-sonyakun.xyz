@@ -1,1 +1,1 @@
-The sonyakun.xyz domain will be abandoned after 2024.
+The sonyakun.xyz domain will be renunciation after 2024.
